@@ -1,7 +1,6 @@
-<img width="26" height="16" alt="1000001415" src="https://github.com/user-attachments/assets/f450637c-8298-4121-bdd7-04c61e6a53c2" />
+<img width="26" height="16" alt="1000001415" src="https://github.com/user-attachments/assets/d34e055d-c0f2-47f3-b00b-b8b94daac4bb" />
 
-<img width="26" height="16" alt="1000001414" src="https://github.com/user-attachments/assets/af7b383c-eb02-42f3-a9fc-935c3304858c" />
-
+<img width="26" height="16" alt="1000001414" src="https://github.com/user-attachments/assets/19d19203-6dca-4500-810b-598592f805e4" />
 
  
  
@@ -17,20 +16,23 @@ I'm mostly on discord if you want a fast response* you can ask fir my user!!
 
 im 16! 13- or 20+ do not interact unless in said oc maker or you need to!
 
-*usually the skins I use*   ![1000001418](https://github.com/user-attachments/assets/e0633039-cfeb-4fff-b71e-f9ab7f1ffbef)
+*usually the skins I use*   ![1000001418](https://github.com/user-attachments/assets/e5dbef95-cd9d-4db0-8d74-429a84054b75)
+![1000001419](https://github.com/user-attachments/assets/f796ae4f-2c15-4a7b-bab3-e264daf2032f)
+![1000001417](https://github.com/user-attachments/assets/80132093-45c9-481e-a487-f351f85a2d46)
 
-![1000001427](https://github.com/user-attachments/assets/dd6d03e8-13fb-4bed-85b3-aa093a02c080)
 
-![1000001410](https://github.com/user-attachments/assets/390007e1-d974-4bb1-9497-1c14133ad596)  ![1000001417](https://github.com/user-attachments/assets/bd377362-72da-4ce9-ab6f-7113d5a69bb8)
+![1000001410](https://github.com/user-attachments/assets/85e3ab1a-d01a-4f54-a583-4cb9211597e6)
 
-![1000001409](https://github.com/user-attachments/assets/3aacd7e9-90e6-4db3-8904-033633cfd830)
-![1000001408](https://github.com/user-attachments/assets/6f6c3371-fa81-4199-ab5a-318bad1a3004)
-![1000001407](https://github.com/user-attachments/assets/95bf5083-d577-4c6f-a876-956bc81e167d)
+![1000001403](https://github.com/user-attachments/assets/5c7e242a-d855-4375-861a-bbced0d7a5e9)
 
-![1000001426](https://github.com/user-attachments/assets/549488e3-00fc-4e10-af69-618529a570bb)
-![1000001425](https://github.com/user-attachments/assets/419e1c33-e20a-476e-bb86-169faea79be6)
-![1000001423](https://github.com/user-attachments/assets/6ea37e9c-c49a-44db-8568-f57c947aee22)
-![1000001422](https://github.com/user-attachments/assets/7a69150f-e082-4c0a-9d8a-07a140325077)
-![1000001424](https://github.com/user-attachments/assets/b90d3269-e878-4de6-ae5e-c4341c519dd8)
-![1000001421](https://github.com/user-attachments/assets/d6e537d9-056b-46ef-b9d5-94148c409180)
-![1000001420](https://github.com/user-attachments/assets/a9302044-a041-406c-a631-931adcdb7ee4)
+![1000001408](https://github.com/user-attachments/assets/0939d54d-1366-45cd-88fc-1e4a311791fc)
+
+![1000001409](https://github.com/user-attachments/assets/5fdc7946-b3c5-4dd5-8620-870b7efb64ea)
+
+![1000001420](https://github.com/user-attachments/assets/993f9200-86b8-4058-81cf-1978384e473b)
+![1000001422](https://github.com/user-attachments/assets/17b7d2df-9dfb-47b0-955e-f6347d5fd214)
+![1000001423](https://github.com/user-attachments/assets/cc161b76-40d2-409b-8030-fb6d01b613c8)
+![1000001425](https://github.com/user-attachments/assets/356f4387-730c-421c-a552-ffafb271c4e6)
+![1000001426](https://github.com/user-attachments/assets/a421043f-ae1f-44b6-87e6-d5a9ef0c6481)
+![1000001424](https://github.com/user-attachments/assets/b922cfaa-b886-4c53-ab46-b25450eea6a0)
+![1000001421](https://github.com/user-attachments/assets/567249fa-6048-4fff-81b4-6e1ac5288696)
