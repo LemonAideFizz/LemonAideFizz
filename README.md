@@ -1,4 +1,5 @@
 <img width="26" height="16" alt="1000001415" src="https://github.com/user-attachments/assets/f450637c-8298-4121-bdd7-04c61e6a53c2" />
+
 <img width="26" height="16" alt="1000001414" src="https://github.com/user-attachments/assets/af7b383c-eb02-42f3-a9fc-935c3304858c" />
 
 
@@ -16,10 +17,9 @@ I'm mostly on discord if you want a fast response* you can ask fir my user!!
 
 im 16! 13- or 20+ do not interact unless in said oc maker or you need to!
 
-*usually the skins I use* ![1000001418](https://github.com/user-attachments/assets/e0633039-cfeb-4fff-b71e-f9ab7f1ffbef)
+*usually the skins I use*   ![1000001418](https://github.com/user-attachments/assets/e0633039-cfeb-4fff-b71e-f9ab7f1ffbef)
 
 ![1000001427](https://github.com/user-attachments/assets/dd6d03e8-13fb-4bed-85b3-aa093a02c080)
-
 
 ![1000001410](https://github.com/user-attachments/assets/390007e1-d974-4bb1-9497-1c14133ad596)  ![1000001417](https://github.com/user-attachments/assets/bd377362-72da-4ce9-ab6f-7113d5a69bb8)
 
@@ -34,17 +34,3 @@ im 16! 13- or 20+ do not interact unless in said oc maker or you need to!
 ![1000001424](https://github.com/user-attachments/assets/b90d3269-e878-4de6-ae5e-c4341c519dd8)
 ![1000001421](https://github.com/user-attachments/assets/d6e537d9-056b-46ef-b9d5-94148c409180)
 ![1000001420](https://github.com/user-attachments/assets/a9302044-a041-406c-a631-931adcdb7ee4)
-<!--
-**LemonAideFizz/LemonAideFizz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
