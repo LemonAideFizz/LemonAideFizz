@@ -17,7 +17,7 @@ I'm mostly on discord if you want a fast response* you can ask fir my user!!
 im 16! 13- or 20+ do not interact unless in said oc maker or you need to!
 
 *usually the skins I use*  
-![1000001410](https://github.com/user-attachments/assets/85e3ab1a-d01a-4f54-a583-4cb9211597e6)
+![1000001410](https://github.com/user-attachments/assets/85e3ab1a-d01a-4f54-a583-4cb9211597e6={width="150"height="280"})
 
 ![1000001403](https://github.com/user-attachments/assets/5c7e242a-d855-4375-861a-bbced0d7a5e9)
 
