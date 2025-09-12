@@ -8,7 +8,7 @@
 ***DNCOPY!!*** **_preferably ask for color hex or inspiration!_**
 _Im a fictionKin and will most likely be inside of mindset of said kin._
 
-<code style="* * : name_color">Please don't cover me or touch me much because my screen gets really crowded really fast</FFD700>
+<code style="* * : Yellow">Please don't cover me or touch me much because my screen gets really crowded really fast! unless your a friend.. then get over here with me!</FFD700>
 
 **F**eel *free to sit/Talk with me!
 I'm mostly on discord if you want a fast response* you can ask fir my user!!
