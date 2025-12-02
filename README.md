@@ -11,3 +11,5 @@ I'm mostly on discord if you want a fast response* you can ask fir my user!!
 im 16! 13- or 20+ do not interact unless in said oc maker or you need to!
 
 
+https://tf2soldier-appreciation.straw.page/
+i love soldier sooo much i slove
